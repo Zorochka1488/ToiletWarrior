@@ -1,1 +1,3 @@
 # ToiletWarrior
+Heil Hitler
+ChikyChaki
